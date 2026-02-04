@@ -1,0 +1,2 @@
+# 73609059-69f8-40cc-982f-57db46c76370-hero-1
+Hero section variant 1 for 73609059-69f8-40cc-982f-57db46c76370
